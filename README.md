@@ -1,0 +1,1 @@
+# cartera-60-40-vs-risk-parity
